@@ -1,1 +1,0 @@
-mau apa bang kepo 🗿
